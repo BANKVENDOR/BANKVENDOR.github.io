@@ -1,1 +1,0 @@
-# BANKVENDOR.github.io
